@@ -1,1 +1,1 @@
-# samayapuram-buchhamma-printers
+# samayapuram-bujjamma-printers
